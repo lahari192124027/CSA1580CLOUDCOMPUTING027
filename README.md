@@ -19,3 +19,8 @@
 ![2023-05-06 (10)](https://user-images.githubusercontent.com/114465740/236596850-eae0711b-192a-4e9d-809d-24e336b9e654.png)
 ![2023-05-06 (11)](https://user-images.githubusercontent.com/114465740/236596865-dba26d90-c57c-4a2f-a3a4-93071d4c0529.png)
 
+#rent process
+![2023-05-06 (12)](https://user-images.githubusercontent.com/114465740/236597917-14bf2388-08d2-4553-8197-e362131d221e.png)
+![2023-05-06 (13)](https://user-images.githubusercontent.com/114465740/236597924-38d02033-0a56-4582-8ea1-ddc6e3cc0449.png)
+![2023-05-06 (14)](https://user-images.githubusercontent.com/114465740/236597944-f5c0dc69-b5d5-4130-a83e-fb3d38d5ebfe.png)
+
